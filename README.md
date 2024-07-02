@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Frothrocket
-- 👀 I’m interested in RPG gaming and just starting to get into modding for aming as well.
+- 👀 I’m interested in RPG gaming and just starting to get into modding for gaming as well.
 - 🌱 I’m currently learning Unreal engine
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Whatever is clever.
 - 📫 How to reach me frothrocket@gmail.com
 - 😄 Pronouns: Dont Fuck/With me
 - ⚡ Fun fact: I own a Boba Fett truck
